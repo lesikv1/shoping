@@ -1,3 +1,0 @@
-# shoping
-# shoping
-# shoping
